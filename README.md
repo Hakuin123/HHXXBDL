@@ -2,6 +2,7 @@
 又名：我用HarmonyOS摆烂了你的AE作业
 
 原视频：
+![开摆](https://github.com/Hakuin123/HHXXBDL/releases/download/欢欢喜喜摆大烂/KAIBAI.mp4)
 
 
 ## 前情提要（原视频简介）
